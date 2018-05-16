@@ -1,1 +1,10 @@
-# tu
+http://www.669pm.com
+http://www.724zu.com
+http://www.737hu.com
+http://www.756hu.com
+http://www.757hu.com
+http://www.77zuo.net
+http://www.787hu.com
+http://www.82343.net
+http://www.8999o.com
+http://www.90x87.net
